@@ -79,6 +79,56 @@ Create a DSRM password and take note<br/>
 
 ![9](https://github.com/user-attachments/assets/a2a3019f-d94e-48a5-bf86-c83e46e521a9)
 
+<br />
+<br />
+<p align="center">
+11<br/>
+
+![11](https://github.com/user-attachments/assets/13b225b3-ea0a-45ca-a807-38d7f7f87448)
+
+<br />
+<br />
+<p align="center">
+12<br/>
+
+![12](https://github.com/user-attachments/assets/3cd86001-64f3-4129-bf97-463cc4b9d391)
+
+<br />
+<br />
+<p align="center">
+13<br/>
+
+
+![13](https://github.com/user-attachments/assets/75dcc843-c98d-4943-a467-6c6b4f557d21)
+
+<br />
+<br />
+<p align="center">
+14<br/>
+
+![14](https://github.com/user-attachments/assets/694108a1-c49e-46b4-903a-dc7d596ed34f)
+
+<br />
+<br />
+<p align="center">
+15<br/>
+
+
+![15](https://github.com/user-attachments/assets/24a98095-d8de-4c57-bd92-2b71316d53ab)
+
+<br />
+<br />
+<p align="center">
+16<br/>
+
+![16](https://github.com/user-attachments/assets/8fa4eb92-8813-4a1f-bd37-608daae64410)
+
+<br />
+<br />
+<p align="center">
+17<br/>
+
+![17](https://github.com/user-attachments/assets/cdd32078-b22e-4e87-a432-d3b3328c789a)
 
 
 </p>
